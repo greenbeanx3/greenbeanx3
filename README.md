@@ -18,4 +18,4 @@ following sum1 on here or github usually means we're pt friends, or I thought yo
 
 my discord is @greenbeanX3 ONLY for mutuals on websites
 
-<a target="_blank" href="all-about-me-teehee.carrd.co"><img src="<img src="https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif"/>"></a>
+<a target="_blank" href="all-about-me-teehee.carrd.co"><img src="https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif"/</a>
