@@ -2,10 +2,6 @@
 <a target="_blank"><img src="https://files.catbox.moe/r6ofv7.png"></a>
 <a target="_blank"><img src="https://files.catbox.moe/sj65cr.gif"></a>
 
-matching pfps for me and @deepinkman 
-![Screenshot 2025-01-29 094040](https://github.com/user-attachments/assets/b79cb93d-7e17-4e28-aa36-44c1a4866785)
-![Screenshot 2025-01-29 094030](https://github.com/user-attachments/assets/48b589c5-35f6-4df7-89d5-2aabd3150a1f)
-
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
 don't worry, this page looks bland as fuck because i don't have the time yet to make it look better, revamp coming !!
