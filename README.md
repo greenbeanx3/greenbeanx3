@@ -20,9 +20,21 @@ i love all my ponytown mutuals ( even the ones that I don't talk to often, and E
 
 following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3
 
-
-
 my discord is @greenbeanX3 ONLY for mutuals on websites
+
+ponies you will see me as mainly !! ( i need to add todd , neil , and regular wilson , lol )
+
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image04.gif?v=04e3e4bb" width="205"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image03.gif?v=04e3e4bb" width="205"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image08.gif?v=04e3e4bb" width="205"/>
+
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image05.gif?v=04e3e4bb" width="205"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image07.gif?v=04e3e4bb" width="205"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image06.gif?v=04e3e4bb" width="205"/>
+
+
+
+
 
 <a target="_blank"><img src="https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif"></a>
 <a target="_blank"><img src="https://files.catbox.moe/puqawf.gif"></a>
