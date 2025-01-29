@@ -1,11 +1,6 @@
-<a target="_blank" href="all-about-me-teehee.carrd.co"><img src="https://i.pinimg.com/originals/17/80/b3/1780b3540d08a3a0a277ba70113cf9ef.jpg"></a>
+<a href="all-about-me-teehee.carrd.co"><img src="https://i.pinimg.com/originals/17/80/b3/1780b3540d08a3a0a277ba70113cf9ef.jpg" alt="click here for my carrd!" title="click here for my carrd!">
 <a target="_blank"><img src="https://files.catbox.moe/r6ofv7.png"></a>
 <a target="_blank"><img src="https://files.catbox.moe/sj65cr.gif"></a>
-
-<a href="all-about-me-teehee.carrd.co">
- <img src="https://files.catbox.moe/sj65cr.gif" />
-</a>
-
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
