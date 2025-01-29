@@ -17,3 +17,5 @@ i love all my ponytown mutuals ( even the ones that I don't talk to often, and E
 following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3
 
 my discord is @greenbeanX3 ONLY for mutuals on websites
+
+<a target="_blank" href="all-about-me-teehee.carrd.co"><img src="<img src="https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif"/>"></a>
