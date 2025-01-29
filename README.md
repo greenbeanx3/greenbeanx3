@@ -2,6 +2,11 @@
 <a target="_blank"><img src="https://files.catbox.moe/r6ofv7.png"></a>
 <a target="_blank"><img src="https://files.catbox.moe/sj65cr.gif"></a>
 
+<a href="all-about-me-teehee.carrd.co">
+ <img src="https://files.catbox.moe/sj65cr.gif" />
+</a>
+
+
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
 don't worry, this page looks bland as fuck because i don't have the time yet to make it look better, revamp coming !!
