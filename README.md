@@ -18,20 +18,22 @@ agere + audhd + multifandom + queer asf
 
 i love all my ponytown mutuals ( even the ones that I don't talk to often, and ESPECIALLY you, solstice/kyle <3 ) !! /plat /gen
 
+if you don't get a /ref i make, please please please just ask me what the ref is!! i love ranting about my refrences and stuffs, so it'll make me happy af > _ <
+
 following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3
 
 my discord is @greenbeanX3 ONLY for mutuals on websites
 
-ponies you will see me as mainly !! ( i need to add todd , neil , and regular wilson , lol )
+[ponies you will see me as mainly !! i need to add todd , neil , loki , mobiusand regular wilson , lol](nothingtwoseehere.carrd.co)
 
-<div align="center">
+<div align="left">
 
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image04.gif?v=04e3e4bb" width="175"/>
-  <img src="https://nothingtwoseehere.carrd.co/assets/images/image03.gif?v=04e3e4bb" width="175"/>
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image08.gif?v=04e3e4bb" width="175"/>
-  <img src="https://nothingtwoseehere.carrd.co/assets/images/image05.gif?v=04e3e4bb" width="175"/>
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image07.gif?v=04e3e4bb" width="175"/>
-  <img src="https://nothingtwoseehere.carrd.co/assets/images/image06.gif?v=04e3e4bb" width="175"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image04.gif?v=04e3e4bb" width="138"/>
+  <img src="https://nothingtwoseehere.carrd.co/assets/images/image03.gif?v=04e3e4bb" width="138"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image08.gif?v=04e3e4bb" width="138"/>
+  <img src="https://nothingtwoseehere.carrd.co/assets/images/image05.gif?v=04e3e4bb" width="158"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image07.gif?v=04e3e4bb" width="158"/>
+  <img src="https://nothingtwoseehere.carrd.co/assets/images/image06.gif?v=04e3e4bb" width="158"/>
 
 
 
