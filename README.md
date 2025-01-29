@@ -34,8 +34,7 @@ following sum1 on here or github usually means we're pt friends, or I thought yo
 
 my discord is @greenbeanX3 ONLY for mutuals on websites
 
-ponies you will see me as mainly !! i need to add todd , neil , loki , mobius and regular wilson , lol > _ <  --  nothingtwoseehere.carrd.co
-
+ponies you will see me as mainly !! i need to add todd , neil , loki , mobius and regular wilson , lol > _ <  --  WIP :3
 <a target="_blank"><img src="https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif"></a>
 <a target="_blank"><img src="https://files.catbox.moe/puqawf.gif"></a>
 <a target="_blank"><img src="https://files.catbox.moe/hlcl89.png"></a>
