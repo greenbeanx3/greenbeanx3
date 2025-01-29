@@ -24,13 +24,14 @@ my discord is @greenbeanX3 ONLY for mutuals on websites
 
 ponies you will see me as mainly !! ( i need to add todd , neil , and regular wilson , lol )
 
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image04.gif?v=04e3e4bb" width="205"/>
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image03.gif?v=04e3e4bb" width="205"/>
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image08.gif?v=04e3e4bb" width="205"/>
+<div align="center">
 
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image05.gif?v=04e3e4bb" width="205"/>
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image07.gif?v=04e3e4bb" width="205"/>
-<img src="https://nothingtwoseehere.carrd.co/assets/images/image06.gif?v=04e3e4bb" width="205"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image04.gif?v=04e3e4bb" width="175"/>
+  <img src="https://nothingtwoseehere.carrd.co/assets/images/image03.gif?v=04e3e4bb" width="175"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image08.gif?v=04e3e4bb" width="175"/>
+  <img src="https://nothingtwoseehere.carrd.co/assets/images/image05.gif?v=04e3e4bb" width="175"/>
+<img src="https://nothingtwoseehere.carrd.co/assets/images/image07.gif?v=04e3e4bb" width="175"/>
+  <img src="https://nothingtwoseehere.carrd.co/assets/images/image06.gif?v=04e3e4bb" width="175"/>
 
 
 
