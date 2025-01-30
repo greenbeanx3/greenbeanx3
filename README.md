@@ -12,6 +12,8 @@ i loveeee when people talk to me when i'm regressed, PLEASE FOR THE LOVE OF EVER
 
 newly threeteen, -12/18+ dniuid unless we're already friends then yes intereacttt
 
+pronouns cc coming soon but it's a big wip :3 - you can call me greenbean , green ,, bean , beanie , i literally don't care atp , fem / gender neutral presenting irl but idm how you compliment me !! ^_^
+
 ponytown join date = jan 22nd 2024 <3 -- if i'm in 18+ server i'm probably overstimulated from safe server nonsense or hanging out with friends , please dont't attack me when i'm chilling because I wouldn't attack you !
 
 hiding and blocking freely, trump skins get hidden immediently, idc if it's a joke /srs -- sidenote, i'll usually just hide temporarily ig you're blocking my pony on purpose ( sometimes i just want to see me and my friends sitting , it's not you ) or being annoying
@@ -22,9 +24,9 @@ tonetags *needed* , if you don't provide them in some cases i'll usually overthi
 
 my typing quirk ( kinda for fun but now it's buried into my subconcious ) is a space between punctuation, doubles of the punctuation marks I use ( commas / periods doubled sometimes but not always ) ,, !! i can force myself to stop it if i need to , but it's kinda just force of habit !!
 
-can't draw at all ( half lies ) but i do jokey art trades / free commissions for close friends ^ _ ^
+can't draw at all ( half lies ) but i do jokey art trades / joke bad free commissions for close friends ^ _ ^
 
-agere + audhd + multifandom ( SO many fandoms . ) + queer asf ( ( nonbinary / agender genderfluid [ gender is veryyy fluid ] + omniromantic sapphic w/ fem pref + aro-ace spec demisexual/demiromatic orchidromaticisim ( until i'm close to you , blame the demiromaticism/sexuality ) + xenogender / neopronouns user ) )
+agere + audhd + multifandom ( SO many fandoms . ) + queer asf ( ( nonbinary / agender genderfluid [ gender is veryyy fluid ] + omniromantic sapphic w/ fem pref + aro-ace spec demisexual/demiromatic orchidromaticisim/sexuality + xenogender / neopronouns user ) )
 
 i love all my ponytown mutuals ( even the ones that I don't talk to often, and ESPECIALLY you, solstice/kyle <3 ) !! /plat /gen
 
