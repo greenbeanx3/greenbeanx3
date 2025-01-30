@@ -4,7 +4,7 @@
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
-c + h is always on, dni just means not to talk to me ^_^
+c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!
 
 feel free to int unless i have dniu__ in my name, iw(e)c means to be just generally careful if interacting for the first time
 
