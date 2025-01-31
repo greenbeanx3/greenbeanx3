@@ -4,11 +4,17 @@
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
+bffs !! @deepinkman @kylecel @foundermcu
+
+friends !! -- @NerdBrainJane 
+
 c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!
 
 feel free to int unless i have dniu__ in my name, iw(e)c means to be just generally careful if interacting for the first time
 
 i loveeee when people talk to me when i'm regressed, PLEASE FOR THE LOVE OF EVERYTHING INT WITH ME WHEN I HAVE AGERE IN MY NAME !!!
+
+i'm agnostic leaning towards athiest,, but i won't hate on your religion!! just don't be pushy into making me believe in your religion and we'll be fineee :3
 
 newly threeteen, -12/18+ dniuid unless we're already friends then yes intereacttt
 
