@@ -4,6 +4,8 @@
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
+lmao @xaniphe you hate people and their coping mechanisms, are abelist, and called me the n-word / slurs,, dni you and your friends :3 lalalalalal <33
+
 bffs !! @deepinkman @kylecel @foundermcu
 
 friends !! -- @NerdBrainJane 
