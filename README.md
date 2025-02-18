@@ -4,47 +4,27 @@
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
-lmao @xaniphe you hate people and their coping mechanisms, are abelist, and called me the n-word / slurs,, dni you and your friends :3 lalalalalal <33
-
 bffs !! @deepinkman @kylecel @foundermcu
-
-friends !! -- @NerdBrainJane 
 
 c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!
 
 feel free to int unless i have dniu__ in my name, iw(e)c means to be just generally careful if interacting for the first time
 
-i loveeee when people talk to me when i'm regressed, PLEASE FOR THE LOVE OF EVERYTHING INT WITH ME WHEN I HAVE AGERE IN MY NAME !!!
-
-i'm agnostic leaning towards athiest,, but i won't hate on your religion!! just don't be pushy into making me believe in your religion and we'll be fineee :3
 
 newly threeteen, -12/18+ dniuid unless we're already friends then yes intereacttt
 
 pronouns cc coming soon but it's a big wip :3 - you can call me greenbean , green ,, bean , beanie , i literally don't care atp , fem / gender neutral presenting irl but idm how you compliment me !! ^_^
 
-ponytown join date = jan 22nd 2024 <3 -- if i'm in 18+ server i'm probably overstimulated from safe server nonsense or hanging out with friends , please dont't attack me when i'm chilling because I wouldn't attack you !
+ponytown join date = jan 22nd 2024 <3
 
 hiding and blocking freely, trump skins get hidden immediently, idc if it's a joke /srs -- sidenote, i'll usually just hide temporarily ig you're blocking my pony on purpose ( sometimes i just want to see me and my friends sitting , it's not you ) or being annoying
-
-diagnosed with ODD , ADD ( on medication ) , and a 'little bit of anxiety' ( direct quote from the doctor 😭 ) . i stim and rant a lot , just ask me for more specific tone / if my rants overwhelm you
-
-tonetags *needed* , if you don't provide them in some cases i'll usually overthink whatever you said . i don't mind if you don't use it a lot but if i ask for claification , that's why
-
-my typing quirk ( kinda for fun but now it's buried into my subconcious ) is a space between punctuation, doubles of the punctuation marks I use ( commas / periods doubled sometimes but not always ) ,, !! i can force myself to stop it if i need to , but it's kinda just force of habit !!
-
-can't draw at all ( half lies ) but i do jokey art trades / joke bad free commissions for close friends ^ _ ^
 
 agere + audhd + multifandom ( SO many fandoms . ) + queer asf ( ( nonbinary / agender genderfluid [ gender is veryyy fluid ] + omniromantic sapphic w/ fem pref + aro-ace spec demisexual/demiromatic orchidromaticisim/sexuality + xenogender / neopronouns user ) )
 
 i love all my ponytown mutuals ( even the ones that I don't talk to often, and ESPECIALLY you, solstice/kyle <3 ) !! /plat /gen
 
-if you don't get a /ref i make, please please please just ask me what the ref is!! i love ranting about my refrences and stuffs, so it'll make me happy af > _ <
-
 following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3
 
-my discord is @greenbeanX3 ONLY for mutuals on websites
-
-ponies you will see me as mainly !! i need to add todd , neil , loki , mobius and regular wilson , lol > _ <  --  WIP :3
 <a target="_blank"><img src="https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif"></a>
 <a target="_blank"><img src="https://files.catbox.moe/puqawf.gif"></a>
 <a target="_blank"><img src="https://files.catbox.moe/hlcl89.png"></a>
