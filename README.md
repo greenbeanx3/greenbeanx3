@@ -4,9 +4,9 @@
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
-bffs ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust
+bffsm( first friends ) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07
 
-friends ;; @shw1enholmes @kylecel @foundermcu @deepinkman @rabidpossum @TheRealBarryAllen @ArtTomic @Eclipee @MagnetizedMinded @adrenalineinsight @RealBoosterGoldTrust @adamantiumcl4ws @SynsDemise @mandalovity @wiinchxster !!
+friends ( on the same level as my bffs but a lil later ) ;; @shw1enholmes @kylecel @foundermcu @deepinkman @rabidpossum @Muggy07 @TheRealBarryAllen @ArtTomic @Eclipee @MagnetizedMinded @adrenalineinsight @RealBoosterGoldTrust @adamantiumcl4ws @SynsDemise @mandalovity @wiinchxster !!
 
 c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!
 
