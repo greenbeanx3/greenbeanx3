@@ -27,6 +27,25 @@ i love all my ponytown mutuals ( even the ones that I don't talk to often, and E
 
 following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3
 
+<a target="_blank"><img src="https://64.media.tumblr.com/59d02601a35b7da12bccdd481994ef33/fcf30a7d52b1c113-ff/s400x600/1be4567446b491d801ff1da73a1a41cd35d5ea28.gif"></a>
+
+<a target="_blank"><img src="https://tomomi.neocities.org/pixeles/225.gif"></a>
+<a target="_blank"><img src="https://64.media.tumblr.com/d8d4ea65be6950548f6751ec88a49345/d0503fab88089f02-b7/s75x75_c1/ed0af166dbfb32a668b358e4494e4f335fdc284f.gifv"></a> 
+i wish i knew how to quit you. - jack twist.
+<a target="_blank"><img src="https://64.media.tumblr.com/89c8f38af9f7bb94d979ed8efa7b4f4c/d0503fab88089f02-57/s75x75_c1/99c82eef7b0b587dbf6cad37a7d6dbc4c5ca58be.gifv"></a>
+<a target="_blank"><img src="https://tomomi.neocities.org/pixeles/226.gif"></a>
+
+<a target="_blank"><img src="https://files.catbox.moe/ofwsdl.gif"></a>
+<a target="_blank"><img src="https://files.catbox.moe/h8zwlz.gif"></a>
+<a target="_blank"><img src="https://64.media.tumblr.com/643b32d2a14f4f62d608c2c947080205/tumblr_pp9ckghE1S1uon9hao1_75sq.gif"></a>
+<a target="_blank"><img src="https://files.catbox.moe/rj8zvp.gif"></a>
+<a target="_blank"><img src="https://64.media.tumblr.com/5b35cf9cfc6cd46a62721807b5d51ba9/172f0f97ca817af3-3d/s75x75_c1/58e715cb6129bd56fbd5046fa27b53d4f8570800.gif"></a>
+<a target="_blank"><img src="https://files.catbox.moe/cr1uak.gif"></a>
+<a target="_blank"><img src="https://files.catbox.moe/4gcmp7.gif"></a>
+<a target="_blank"><img src="https://files.catbox.moe/jcoro6.gif"></a>
+<a target="_blank"><img src="https://files.catbox.moe/k58395.gif"></a>
+
+
 <a target="_blank"><img src="https://media.everskies.com/wxyeZj7HiN7l1oDYe1xW.gif"></a>
 <a target="_blank"><img src="https://files.catbox.moe/puqawf.gif"></a>
 <a target="_blank"><img src="https://files.catbox.moe/hlcl89.png"></a>
