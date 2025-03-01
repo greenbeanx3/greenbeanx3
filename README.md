@@ -4,14 +4,15 @@
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
+![](https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=silly+visitors+!!&abreviated=true)
+
 bffs( first friends ) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07
 
-friends ( on the same level as my bffs but a lil later ) ;; @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @Eclipee @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @wiinchxster @cyanolux !!
+friends ( on the same level as my bffs but a lil later ) ;; @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @wiinchxster @cyanolux !!
 
 c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!
 
 feel free to int unless i have dniu__ in my name, iw(e)c means to be just generally careful if interacting for the first time
-
 
 newly threeteen, -12/18+ dniuid unless we're already friends then yes intereacttt
 
