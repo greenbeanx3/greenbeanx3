@@ -30,10 +30,6 @@ i love all my ponytown mutuals ( even the ones that I don't talk to often, and E
 
 following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3
 
-![](https://github.com/user-attachments/assets/5f75e5fa-7eed-4f6a-96db-7b0ac475f6e1)
-well, i'm gonna explain this once and for all, despite how it's literally nobodies buisness, i want these tyep of comments to fucking stop. one, you'll fine me on safe server only, because im a MINOR, and minors act CHILDISH, ie. me. number two, alright i dont have to explain for you ignorant fuckers, 
-
-
 
 <a target="_blank"><img src="https://64.media.tumblr.com/59d02601a35b7da12bccdd481994ef33/fcf30a7d52b1c113-ff/s400x600/1be4567446b491d801ff1da73a1a41cd35d5ea28.gif"></a>
 
