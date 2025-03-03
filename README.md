@@ -12,6 +12,8 @@ friends ( on the same level as my bffs but a lil later ) ;; @shw1enholmes @rabid
 
 c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!
 
+my rentry for the stupid people : rentry.co/addressingstupidpeople
+
 feel free to int unless i have dniu__ in my name, iw(e)c means to be just generally careful if interacting for the first time
 
 newly threeteen, -12/18+ dniuid unless we're already friends then yes intereacttt
