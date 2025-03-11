@@ -6,7 +6,7 @@
 
 ![](https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=silly+visitors+!!&abreviated=true)
 
-bffs( first friends ) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07
+bffs( first friends ) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic
 
 friends ( on the same level as my bffs but a lil later ) ;; @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @wiinchxster @cyanolux !!
 
