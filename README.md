@@ -18,7 +18,7 @@ feel free to int unless i have dniu__ in my name, iw(e)c means to be just genera
 
 newly threeteen, -12/18+ dniuid unless we're already friends then yes intereacttt
 
-pronouns cc coming soon but it's a big wip :3 - you can call me greenbean , green ,, bean , beanie , i literally don't care atp , fem / gender neutral presenting irl but idm how you compliment me !! ^_^
+https://pronouns.cc/greenbean -- tldr : you can call me greenbean , green ,, bean , beanie , i literally don't care atp , fem / gender neutral presenting irl but idm how you compliment me !! ^_^
 
 ponytown join date = jan 22nd 2024 <3
 
@@ -28,7 +28,7 @@ agere + audhd + multifandom ( SO many fandoms . ) + queer asf ( ( nonbinary / ag
 
 i love all my ponytown mutuals ( even the ones that I don't talk to often, and ESPECIALLY you, solstice/kyle <3 ) !! /plat /gen
 
-following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3
+following sum1 on here or github usually means we're pt friends, or I thought your page was cool !! :3 im sorry if im annoying / i spam follow(?) TwT
 
 
 <a target="_blank"><img src="https://64.media.tumblr.com/59d02601a35b7da12bccdd481994ef33/fcf30a7d52b1c113-ff/s400x600/1be4567446b491d801ff1da73a1a41cd35d5ea28.gif"></a>
