@@ -6,25 +6,24 @@
 
 ![](https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=silly+visitors+!!&abreviated=true)
 
-bffs( first friends ) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic
+bffs in no particular order ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @ARAZspn @cyanolux @eclipee !!
 
-friends ( on the same level as my bffs but a lil later ) ;; @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @wiinchxster @cyanolux !!
+!! -- DO NOT COPY OR INSPO FROM MY PONIES WITHOUT EXPLICIT PERMISSION ,, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
-c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!
+I LOVE GIFTING SKINS SM IM ALWAYS BORED PLEASE IF YOURE MY FRIEND ASK ME FOR A GIFTED SKIN ANY TIME AUGAHAHAH PLASE IM ACTUALLY BEGGING ILYALL
 
-my rentry for the stupid people : https://rentry.co/addressingstupidpeople
+c + h + k + b + crowning is always on, dni just means not to talk to me
 
-feel free to int unless i have dniu__ in my name, iw(e)c means to be just generally careful if interacting for the first time
+feel free to whisper / int unless i have dniu__ in my name, iw(e)c means to be just generally careful if interacting for the first time !!
 
-newly threeteen, -12/18+ dniuid unless we're already friends then yes intereacttt
+i loveeee when people talk to me when i'm regressed, PLEASE FOR THE LOVE OF EVERYTHING INT WITH ME WHEN I HAVE AGERE IN MY NAME !!!
 
-https://pronouns.cc/greenbean -- tldr : you can call me greenbean , green ,, bean , beanie , i literally don't care atp , fem / gender neutral presenting irl but idm how you compliment me !! ^_^
+https://pronouns.cc/greenbeanx3 ;; you can call me greenbean , green ,, bean , beanie ,, beanut ,, || fem / gender neutral presenting irl but idm how you compliment me !! ^_^
 
 ponytown join date = jan 22nd 2024 <3
 
-hiding and blocking freely, trump skins get hidden immediently, idc if it's a joke /srs -- sidenote, i'll usually just hide temporarily ig you're blocking my pony on purpose ( sometimes i just want to see me and my friends sitting , it's not you ) or being annoying
+hiding and blocking freely !! -- sidenote, i'll usually just hide temporarily sometimes !!
 
-agere + audhd + multifandom ( SO many fandoms . ) + queer asf ( ( nonbinary / agender genderfluid [ gender is veryyy fluid ] + omniromantic sapphic w/ fem pref + aro-ace spec demisexual/demiromatic orchidromaticisim/sexuality + xenogender / neopronouns user ) )
 
 i love all my ponytown mutuals ( even the ones that I don't talk to often, and ESPECIALLY you, solstice/kyle <3 ) !! /plat /gen
 
