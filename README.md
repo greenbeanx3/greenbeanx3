@@ -18,7 +18,7 @@ feel free to whisper / int unless i have dniu__ in my name, iw(e)c means to be j
 
 i loveeee when people talk to me when i'm regressed, PLEASE FOR THE LOVE OF EVERYTHING INT WITH ME WHEN I HAVE AGERE IN MY NAME !!!
 
-https://pronouns.cc/greenbeanx3 ;; you can call me greenbean , green ,, bean , beanie ,, beanut ,, || fem / gender neutral presenting irl but idm how you compliment me !! ^_^
+https://pronouns.cc/greenbean ;; you can call me greenbean , green ,, bean , beanie ,, beanut ,, || fem / gender neutral presenting irl but idm how you compliment me !! ^_^
 
 ponytown join date = jan 22nd 2024 <3
 
