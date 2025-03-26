@@ -6,7 +6,7 @@
 
 ![](https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=silly+visitors+!!&abreviated=true)
 
-bffs in no particular order ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @ARAZspn @cyanolux @eclipee !!
+bffs in no particular order (/srs) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @deanpup @cyanolux @eclipee !!
 
 !! -- DO NOT COPY OR INSPO FROM MY PONIES WITHOUT EXPLICIT PERMISSION ,, ESPECIALLY OC'S ! you will be blocked asap! -- !!
 
