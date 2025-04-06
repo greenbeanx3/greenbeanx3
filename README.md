@@ -6,7 +6,7 @@
 
 [](https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=silly+visitors+!!&abreviated=true)
 
-<p align="center">bffs in no particular order (/srs) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @deanpup @cyanolux @eclipee !!<p align="center">
+<p align="center">bffs in no particular order (/srs) ;; @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @deanpup @cyanolux @caninecorpse @eclipee !!<p align="center">
 
 <p align="center">I LOVE GIFTING SKINS SM IM ALWAYS BORED PLEASE IF YOURE MY FRIEND ASK ME FOR A GIFTED SKIN ANY TIME AUGAHAHAH PLASE IM ACTUALLY BEGGING ILYALL<p align="center">
 
