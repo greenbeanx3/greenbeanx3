@@ -4,7 +4,7 @@
   <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=(+˶°ㅁ°)!!+princeton-plainsboro+patients+──★+˙🍓+!!+++++++++++++++++&abreviated=true">
 </p>
 <p align="center">
-<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pnngp3kmup24inzw2c3le7ot5q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=false&bar_color=df6dcc)](https://github.com/kittinan/spotify-github-profile)">
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pnngp3kmup24inzw2c3le7ot5q&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=f070db&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)">
 </p>
 
 <p align="center">╭┈ • ┈ ୨୧ ┈ • ┈╮<p align="center">
