@@ -11,9 +11,3 @@
 
 <p align="center"> ‧₊˚🌈✩ ₊˚🫧⊹♡ extended at https://greenbean.straw.page && https://rentry.co/greenbean `` pt join date = jan 22nd 2024 ‧₊˚ 🍮 ⋅ ☆ <p align="center">
 <p align="center">╰┈ • ┈ ୨୧ ┈ • ┈╯ <p align="center">
-
-
-tesing something ignore this
-
-[![spotify widget :-3](https://spotify-github-readme.vercel.app/api/spotify)]((https://open.spotify.com/track/16GUMo6u3D2qo9a19AkYct))
-
