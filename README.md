@@ -1,16 +1,13 @@
-## Hi there 👋
+<a target="_blank"><img src="https://i.pinimg.com/originals/17/80/b3/1780b3540d08a3a0a277ba70113cf9ef.jpg" alt="wellcyy!" title="hihi!">
+<a target="_blank"><img src="https://files.catbox.moe/r6ofv7.png"></a>
 
-<!--
-**greenbeanx3/greenbeanx3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[](https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=silly+visitors+!!&abreviated=true)
 
-Here are some ideas to get you started:
+<p align="center"> friends !! `` @deepinkman @kylecel @foundermcu @RealBoosterGoldTrust @Muggy07 @samthefantastic @shw1enholmes @rabidpossum @TheRealBarryAllen @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @deanpup @cyanolux @caninecorpse @eclipee !!<p align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> i <3 gifting skins `` dont copy or inspo without permission `` c + h always unless with friends !! `` feel free to whisper,, crown,, or compliment me `` i usually start convos from there if you're nervous/have a hard time interacting first `` i love alll my friends frfr :3 `` no dni ,, i hide ++ block freely !! <p align="center">
+
+
+<p align="center"> extended on https://greenbean.straw.page && https://rentry.co/greenbean 11 ponytown join date = jan 22nd 2024 <3 <p align="center">
+
+<a target="_blank"><img src="https://files.catbox.moe/hlcl89.png"></a>
