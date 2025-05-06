@@ -1,4 +1,4 @@
-<a target="_blank"><img src="https://github.com/user-attachments/assets/6b9164e5-76ec-4067-a252-4919255f90c3" alt="wellcyy!" title="yaoiiii drools! credit to kuuwo ,, the artist !!">
+<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/6b9164e5-76ec-4067-a252-4919255f90c3" alt="wellcyy!" title="yaoiiii drools! credit to kuuwo ,, the artist !!"><p align="center">
 
 ![the sillies](https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F2B2EB&style=plastic&label=silly+visitors+!!&abreviated=true)
 
