@@ -1,7 +1,7 @@
-<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/3c827851-ee8a-4e1e-b03f-c7d5d75fc099" alt="wellcyy!" title="yaoiiii drools .ᐟ credit to @playfullysilly on twt and tt! .ᐟ"><p align="center">
+<p align="center"><a target="_blank"><img src="https://files.catbox.moe/gwknwv.png" alt="mrrow! image of cosmo and sprout holding hands by @TLRCE" title="yaoiiii drools .ᐟ credit to @TLCRE .ᐟ"><p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=FFA726&style=plastic&label=(+˶°ㅁ°)!!+robloxxers+robloxxing+it+──★+˙🎉+!!+++++++++++++++++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=ff96d4&style=plastic&label=(+˶°ㅁ°)!!+people+being+100%+valid!!+──★+˙🍓+!!+++++++++++++++++&abreviated=true">
 </p>
 <p align="center">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pnngp3kmup24inzw2c3le7ot5q&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=f070db&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)">
