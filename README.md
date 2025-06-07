@@ -10,7 +10,7 @@
 <p align="center">╭┈ • ┈ ୨୧ ┈ • ┈╮<p align="center">
   <p align="center">♥︎ ┈ ୨ aspen ୧ ┈ ♥︎<p align="center">
   
-<p align="center"> (  "°□°)𖦹 friends .ᐟ `` @deepinkman @kylecel @foundermcu @ang3lcake @Muggy07 @runr4bb @donkn3s @samthefantastic @shw1enholmes @rabidpossum @TheRealBarryAllen @dirkstriderpilled @ArtTomic @BismuthSubsalicylate @MagnetizedMinded @beaker @adrenalineinsight @adamantiumcl4ws @SynsDemise @mandalovity @ccherrypie @scaIlywag @cyanolux @esotericorpse @caninecorpse @eclipee @MALEST0RM .ᐟ ask 2 be removed !! ( •⩊• )🎧ྀི♪⋆.✮ <a href="https://rentry.co/spongebobyaoi">click me for lovemail!! heavy wip sigh</a><p align="center">
+<p align="center"> (  "°□°)𖦹 friends .ᐟ `` check out everyone linked in my @'s !! <a href="https://rentry.co/spongebobyaoi">click me for lovemail and friend masterlist!! heavy wip sighsss</a><p align="center"> ( •⩊• )🎧ྀི♪⋆.✮ 
 
 <p align="center">important thing to note about me !! : i get VERY defensive of my friends, even if it's "just a troll" calling a friend slurs or names they don't like.  i will go to bat. if you harrass my friend, I will fuck with you right back. this goes for ALL my friends, even the ones not included in the list above, because i love all my friends to death!! if you have beef with my friends, take it up to ME before i get my hands on you. nyaa :3<p align="center">
 
