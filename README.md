@@ -8,8 +8,6 @@
   
 <p align="center">╭┈ • ┈ ୨୧ ┈ • ┈╮<p align="center">
   <p align="center">♥︎ ┈ ୨ <a href="https://github.com/adogsmeow">my lovely aspen !!</a> ୧ ┈ ♥︎<p align="center">
-  
-<p align="center"> (  "°□°)𖦹.ᐟ ` check out my @'s !! <a href="https://rentry.co/spongebobyaoi">lovemail . heavy wip</a> ( •⩊• )🎧ྀི♪⋆.✮<p align="center">
-
-<p align="center">‧₊˚✩₊˚⊹♡ <a href="https://github.com/greenbeanx3/nya/blob/main/README.md">extd</a> . <a href="https://greenbeanx3.straw.page">strawp</a> . <a href="https://rentry.co/greenbean">rentry</a> . <a href="https://greenbean.atabook.org">ata</a> . <a href="https://guns.lol/paswg">gunslol</a> . <a href="https://pronouns.cc/greenbean">prns.cc</a> ` 01/22/24 + 06/01/25 <3 ‧₊˚⋅☆<p align="center">
+<p align="center">‧₊˚✩₊˚⊹♡ <a href="https://github.com/greenbeanx3/nya/blob/main/README.md">extd</a> . <a href="https://greenbeanx3.straw.page">strawp</a> . <a href="https://rentry.co/greenbean">rentry</a> . <a href="https://greenbean.atabook.org">ata</a> . <a href="https://guns.lol/paswg">guns</a> . <a href="https://pronouns.cc/greenbean">prns</a> ‧₊˚⋅☆<p align="center">
+<p align="center"> (  "°□°)𖦹.ᐟ ` check out my @'s !! <a href="https://rentry.co/spongebobyaoi">lovemail . wip</a> ( •⩊• )🎧ྀི♪⋆.✮<p align="center">
 <p align="center">╰┈ • ┈ ୨୧ ┈ • ┈╯ <p align="center">
