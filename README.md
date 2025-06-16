@@ -1,5 +1,3 @@
-EDITING RN!! IGNORE THE MESS AT THE BOTTOM PLS!!!!
-
 <p align="center"><a target="_blank"><img src="https://files.catbox.moe/u1amvp.png" alt="mrrow! image of panty and stocking from paswg by @chibify on redbubble" title="yuriiii drools .ᐟ credit to @chibify on redbubble .ᐟ"><p align="center">
 
 <p align="center">
@@ -17,8 +15,3 @@ EDITING RN!! IGNORE THE MESS AT THE BOTTOM PLS!!!!
 
 <p align="center"> ‧₊˚🌈✩ ₊˚🫧⊹♡ extended vers of this: <a href="https://github.com/greenbeanx3/nya/blob/main/README.md">here</a> while a general extended is on my <a href="https://greenbeanx3.straw.page">strawpage</a> && <a href="https://rentry.co/greenbean">rentry</a> `` pt join date = jan 22nd 2024 `` draw on my straw and sign my <a href="https://greenbean.atabook.org">atabook</a> :3 ‧₊˚ 🍮 ⋅ ☆ <p align="center">
 <p align="center">╰┈ • ┈ ୨୧ ┈ • ┈╯ <p align="center">
-
-![what](https://files.catbox.moe/r4ytk0.png)
-![hi](https://files.catbox.moe/vf0ecs.png)
-![bye](https://files.catbox.moe/6jm7g3.png)
-![oh](https://files.catbox.moe/z3fkar.jpeg)
