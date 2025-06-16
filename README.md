@@ -1,9 +1,9 @@
 EDITING RN!! IGNORE THE MESS AT THE BOTTOM PLS!!!!
 
-<p align="center"><a target="_blank"><img src="https://files.catbox.moe/gwknwv.png" alt="mrrow! image of cosmo and sprout holding hands by @TLRCE" title="yaoiiii drools .ᐟ credit to @TLCRE .ᐟ"><p align="center">
+<p align="center"><a target="_blank"><img src="https://files.catbox.moe/u1amvp.png" alt="mrrow! image of panty and stocking from paswg by @chibify on redbubble" title="yuriiii drools .ᐟ credit to @chibify on redbubble .ᐟ"><p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=ff96d4&style=plastic&label=(+˶°ㅁ°)!!+people+being+100%+valid!!+──★+˙🍓+!!+++++++++++++++++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=D188C5&style=plastic&label=(,,¬﹏¬,,)+𓆩♡𓆪+motherfucker's+repenting!!+──★+˙🍫+!!+++++++++++++++++&abreviated=true">
 </p>
 
 ![last fm scrobbling widget wehh :3](https://lastfm.dedomil.workers.dev/greenbeanx3?dark&spin&rainbow)
