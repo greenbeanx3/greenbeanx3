@@ -7,11 +7,9 @@
 ![last fm scrobbling widget wehh :3](https://lastfm.dedomil.workers.dev/greenbeanx3?dark&spin&rainbow)
   
 <p align="center">╭┈ • ┈ ୨୧ ┈ • ┈╮<p align="center">
-  <p align="center">♥︎ ┈ ୨ <a href="https://github.com/adogsmeow">aspen</a> ୧ ┈ ♥︎<p align="center">
+  <p align="center">♥︎ ┈ ୨ <a href="https://github.com/adogsmeow">my lovely aspen !!</a> ୧ ┈ ♥︎<p align="center">
   
-<p align="center"> (  "°□°)𖦹 friends .ᐟ `` check out everyone linked in my @'s !! <a href="https://rentry.co/spongebobyaoi">lovemail/friend masterlist . heavy wip</a> ( •⩊• )🎧ྀི♪⋆.✮<p align="center">
+<p align="center"> (  "°□°)𖦹.ᐟ ` check out my @'s !! <a href="https://rentry.co/spongebobyaoi">lovemail . heavy wip</a> ( •⩊• )🎧ྀི♪⋆.✮<p align="center">
 
-<p align="center">important thing to note about me !! : i get VERY defensive of my friends, even if it's "just a troll" calling a friend slurs or names they don't like.  i will go to bat. if you harrass my friend, I will fuck with you right back. this goes for ALL my friends, even the ones not included in the list above, because i love all my friends to death!! if you have beef with my friends, take it up to ME before i get my hands on you. nyaa :3<p align="center">
-
-<p align="center"> ‧₊˚🌈✩ ₊˚🫧⊹♡ extended vers of this: <a href="https://github.com/greenbeanx3/nya/blob/main/README.md">here</a> while a general extended is on my <a href="https://greenbeanx3.straw.page">strawpage</a> && <a href="https://rentry.co/greenbean">rentry</a> `` pt join date = jan 22nd 2024 `` draw on my straw and sign my <a href="https://greenbean.atabook.org">atabook</a> :3 ‧₊˚ 🍮 ⋅ ☆ <p align="center">
+<p align="center">‧₊˚✩₊˚⊹♡ <a href="https://github.com/greenbeanx3/nya/blob/main/README.md">extd</a> . <a href="https://greenbeanx3.straw.page">strawp</a> . <a href="https://rentry.co/greenbean">rentry</a> . <a href="https://greenbean.atabook.org">ata</a> . <a href="https://guns.lol/@paswg">gunslol</a> ` join date = jan 22nd 2024 ‧₊˚⋅☆<p align="center">
 <p align="center">╰┈ • ┈ ୨୧ ┈ • ┈╯ <p align="center">
