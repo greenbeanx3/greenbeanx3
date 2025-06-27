@@ -1,4 +1,4 @@
-<p align="center"><a target="_blank"><img src="https://files.catbox.moe/u1amvp.png" alt="mrrow! image of panty and stocking from paswg by @chibify on redbubble" title="yuriiii drools .ᐟ credit to @chibify on redbubble .ᐟ"><p align="center">
+<p align="center"><a target="_blank"><img src="https://files.catbox.moe/t3yse1.gif" alt="mrrow! image of panty and stocking from paswg by @chibify on redbubble" title="my fursona .ᐟ drawn by my wife, @adogsmeow on github, and the gif was made by me, NOT FREE TO USE .ᐟ"><p align="center">
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=D188C5&style=plastic&label=(,,¬﹏¬,,)+𓆩♡𓆪+motherfucker's+repenting!!+──★+˙🍫+!!+++++++++++++++++&abreviated=true">
