@@ -1,7 +1,7 @@
 <p align="center"><a target="_blank"><img src="https://files.catbox.moe/t3yse1.gif" alt="mrrow! image of panty and stocking from paswg by @chibify on redbubble" title="my fursona .ᐟ drawn by my wife, @adogsmeow on github, and the gif was made by me, NOT FREE TO USE .ᐟ"><p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=D188C5&style=plastic&label=(,,¬﹏¬,,)+𓆩♡𓆪+motherfucker's+repenting!!+──★+˙🍫+!!+++++++++++++++++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=82BB84&style=plastic&label=(,,^+_+^,,)+𓆩♡𓆪+my+little+podlings+!!+──★+˙🐛+!!+++++++++++++++++&abreviated=true">
 </p>
 
 ![last fm scrobbling widget wehh :3](https://lastfm.dedomil.workers.dev/greenbeanx3?dark&spin&rainbow)
