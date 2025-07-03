@@ -1,7 +1,7 @@
-<p align="center"><a target="_blank"><img src="https://files.catbox.moe/t3yse1.gif" alt="mrrow! image of panty and stocking from paswg by @chibify on redbubble" title="my fursona .ᐟ drawn by my wife, @adogsmeow on github, and the gif was made by me, NOT FREE TO USE .ᐟ"><p align="center">
+<p align="center"><a target="_blank"><img src="https://files.catbox.moe/5htjlu.gif" alt="mrrow! luigi graphic made by me,not free to use !!" title="luigi fanart graphic .ᐟ artists unknown, I forgor TwT , and the gif was made by me, NOT FREE TO USE .ᐟ"><p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=82BB84&style=plastic&label=(,,^+_+^,,)+𓆩♡𓆪+my+little+podlings+!!+──★+˙🐛+!!+++++++++++++++++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=82BB84&style=plastic&label=(,,^__^,,)+𓆩♡𓆪+one-up+mushrooms+!!+──★+˙🍄+!!+++++++++++++++++&abreviated=true">
 </p>
 
 ![last fm scrobbling widget wehh :3](https://lastfm.dedomil.workers.dev/greenbeanx3?dark&spin&rainbow)
