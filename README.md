@@ -1,4 +1,4 @@
-<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/05f81184-1208-4aee-9500-54ede5ed7565" alt="mrrow! luigi graphic made by me , not free to use !!" title="luigi fanart graphic .ᐟ artists unknown, I forgor TwT , and the gif was made by me , NOT FREE TO USE .ᐟ"><p align="center">
+<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/05f81184-1208-4aee-9500-54ede5ed7565" alt="mrrow! luigi graphic made by me , not free to use !!" title="luigi fanart graphic .ᐟ artists unknown, I forgor TwT , and the gif was made by me , NOT FREE TO USE .ᐟ" width="360" height="360"><p align="center">
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=82BB84&style=plastic&label=(,,^__^,,)+𓆩♡𓆪+one-up+mushrooms+!!+──★+˙🍄+!!+++++++++++++++++&abreviated=true">
