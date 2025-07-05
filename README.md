@@ -9,7 +9,8 @@
 </p>
   
 <p align="center">╭┈ • ┈ ୨୧ ┈ • ┈╮<p align="center">
-  <p align="center">♥︎ ┈ ୨ <a href="https://github.com/adogsmeow">my lovely aspen !!</a> ୧ ┈ ♥︎<p align="center">
+<p align="center">♥︎ ┈ ୨ <a href="https://github.com/adogsmeow">my lovely aspen !!</a> ୧ ┈ ♥︎<p align="center">
+<p align="center">𐙚⋆° i also go by 🎉,🐛,🍓, or 🐞 !! ^__^ .⋆♡<p align="center">
 <p align="center">‧₊˚✩₊˚⊹♡ <a href="https://github.com/greenbeanx3/nya/blob/main/README.md">extd</a> . <a href="https://luigitime.straw.page">strawp</a> .  <a href="https://drawing-ama.straw.page">draw</a> . <a href="https://rentry.co/funsex">rentry</a> . <a href="https://greenbean.atabook.org">ata</a> . <a href="https://guns.lol/paswg">guns</a> . <a href="https://pronouns.cc/greenbean">prns</a> ‧₊˚⋅☆<p align="center">
 <p align="center"> (  "°□°)𖦹.ᐟ ` check out my @'s !! <a href="https://rentry.co/spongebobyaoi">lovemail for oomfies . wip</a> ( •⩊• )🎧ྀི♪⋆.✮<p align="center">
 <p align="center">╰┈ • ┈ ୨୧ ┈ • ┈╯ <p align="center">
