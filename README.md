@@ -2,7 +2,7 @@
 
 <p align="center">
     <img src="https://watermelon.crd.co/assets/images/gallery01/450da4a9.gif?v=bc28efca" title="lalala wing wing wing hhehehe">
-  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=82BB84&style=plastic&label=(,,^__^,,)+𓆩♡𓆪+one-up+mushrooms+!!+──★+˙🍄+!!+++++++++++++++++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=4cbdec&style=plastic&label=(,,^__^,,)+𓆩♡𓆪+healed+patients+!!+──★+˙💉+!!+++++++++++++++++&abreviated=true">
   <img src="https://watermelon.crd.co/assets/images/gallery01/904808c8.gif?v=bc28efca" title="lalala wing times two methinkles">
 </p>
 
