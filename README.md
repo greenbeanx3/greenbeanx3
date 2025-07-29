@@ -1,8 +1,8 @@
-<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/a37f0030-41e9-43aa-85be-de6a5ef17179" alt="mrrow! miku graphic made by me , not free to use !!" title="miku fanart graphic .ᐟ artists unknown , gif was made by me , NOT FREE TO USE .ᐟ" width="360" height="360"><p align="center">
+<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/bd7776ed-5b20-4f26-b2fb-699a0476d395" alt="mrrow! food graphic made by me , not free to use !!" title="food graphic .ᐟ gif was made by me , NOT FREE TO USE .ᐟ" width="360" height="360"><p align="center">
 
 <p align="center">
     <img src="https://watermelon.crd.co/assets/images/gallery01/450da4a9.gif?v=bc28efca" title="lalala wing wing wing hhehehe">
-  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=4cbdec&style=plastic&label=(,,^__^,,)+𓆩♡𓆪+healed+patients+!!+──★+˙💉+!!+++++++++++++++++&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=4cbdec&style=plastic&label=(,,^__^,,)+𓆩♡𓆪+customers+served+!!+──★+˙🍨+!!+++++++++++++++++&abreviated=true">
   <img src="https://watermelon.crd.co/assets/images/gallery01/904808c8.gif?v=bc28efca" title="lalala wing times two methinkles">
 </p>
 
