@@ -4,6 +4,6 @@
 
 <p align="center"><img src="https://lastfm.dedomil.workers.dev/greenbeanx3?dark&spin&rainbow" title="last fm scrobbling widget wehh :3" width="260" height="85><p align="center">
 
-<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/15f7b65a-6f58-4085-9f22-bde87b71eb43" alt="mrrow! jessay pinkman graphic made by me , all images are from huyandere on twt , and not free to use !!" title="jesse pinkman graphic .ᐟ gif was made by me , all art credit to huyandere on twt , NOT FREE TO USE .ᐟ :3" width="215" height="340"><p align="center"> 
+<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/6a60e394-c63e-4783-8003-aa71c1fe1981" alt="mrrow! green nerd aesthetic graphic made by me , all images are from pinterest , and not free to use !!" title="green nerd graphic .ᐟ gif was made by me , all art credit to pinterest , NOT FREE TO USE .ᐟ :3" width="340" height="340"><p align="center">
 
 ![](https://hit.yhype.me/github/profile?account_id=196847782)
