@@ -2,7 +2,7 @@
     
 <p align="center"><img src="https://watermelon.crd.co/assets/images/gallery01/450da4a9.gif?v=bc28efca" title="lalala wing wing wing hhehehe"><img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=FB5870&style=plastic&label=ꉂ(˵˃+ᗜ+˂˵)+𓆩♡𓆪+──★+˙💄+!!+++++++++++++++++&abreviated=true"><img src="https://watermelon.crd.co/assets/images/gallery01/904808c8.gif?v=bc28efca" title="lalala wing times two methinkles"><p align="center">
 
-<p align="center"><img src="https://lastfm.dedomil.workers.dev/greenbeanx3?light&spin&rainbow" title="last fm scrobbling widget wehh :3" width="260" height="85><p align="center">
+<p align="center"><img src="https://lastfm.dedomil.workers.dev/greenbeanx3?dark&spin&rainbow" title="last fm scrobbling widget wehh :3" width="260" height="85><p align="center">
 
 <p align="center"><a target="_blank"><img src="https://files.catbox.moe/sdf8aq.gif" alt="mrrow! evelyn williams graphic made by me , gif from american psycho , and not free to use !!" title="evelyn williams graphic .ᐟ graphic was made by me , gif from american psycho , NOT FREE TO USE .ᐟ :3" width="340" height="340"><p align="center">
 
