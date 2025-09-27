@@ -1,9 +1,9 @@
 <p align="center"><a href="https://docs.google.com/document/d/1PZBPPCn5mdzmKCY0bvNtKniAR_rKWLjFJCnQf0ii8yg/edit?tab=t.0">expose</a> • <a href="https://4lung.straw.page/cw">straw</a> • <a href="https://greenbean.atabook.org">ata</a> • <a href="https://pronouns.cc/@funfettimix">prns</a> • <a href="https://rentry.co/greenbean">rntry</a> • <a href="https://rentry.co/babybo">stances</a><p align="center">
     
-<p align="center"><img src="https://watermelon.crd.co/assets/images/gallery01/450da4a9.gif?v=bc28efca" title="lalala wing wing wing hhehehe"><img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=F1BC78&style=plastic&label=ꉂ(˵˃+ᗜ+˂˵)+𓆩♡𓆪+──★+˙📜+!!+++++++++++++++++&abreviated=true"><img src="https://watermelon.crd.co/assets/images/gallery01/904808c8.gif?v=bc28efca" title="lalala wing times two methinkles"><p align="center">
+<p align="center"><img src="https://watermelon.crd.co/assets/images/gallery01/450da4a9.gif?v=bc28efca" title="lalala wing wing wing hhehehe"><img src="https://komarev.com/ghpvc/?username=greenbeanX3-username&color=FB5870&style=plastic&label=ꉂ(˵˃+ᗜ+˂˵)+𓆩♡𓆪+──★+˙💄+!!+++++++++++++++++&abreviated=true"><img src="https://watermelon.crd.co/assets/images/gallery01/904808c8.gif?v=bc28efca" title="lalala wing times two methinkles"><p align="center">
 
 <p align="center"><img src="https://lastfm.dedomil.workers.dev/greenbeanx3?dark&spin&rainbow" title="last fm scrobbling widget wehh :3" width="260" height="85><p align="center">
 
-<p align="center"><a target="_blank"><img src="https://github.com/user-attachments/assets/c090718f-43cc-4481-b53d-38c53820f801" alt="mrrow! arnold cunningham graphic made by me , all images are from pinterest , and not free to use !!" title="arnold cunningham graphic .ᐟ gif was made by me , all art credit to pinterest , NOT FREE TO USE .ᐟ :3" width="340" height="340"><p align="center">
+<p align="center"><a target="_blank"><img src="https://files.catbox.moe/sdf8aq.gif" alt="mrrow! evelyn williams graphic made by me , gif from american psycho , and not free to use !!" title="evelyn williams graphic .ᐟ graphic was made by me , gif from american psycho , NOT FREE TO USE .ᐟ :3" width="340" height="340"><p align="center">
 
 ![](https://hit.yhype.me/github/profile?account_id=196847782)
